@@ -1,6 +1,6 @@
 - yo @Shermoneyyy here
 - I’m interested in retail therpay
-- 🌱 I’m currentlearning Web & Multimedia Development
+- 🌱 I’m current learning Web & Multimedia Development
 - 💞️ I’m looking to collaborate on anything and everything coding
 - 📫 How to reach me @shermanuptown
 - 😄 Pronouns: .ew
